@@ -1,4 +1,4 @@
-![별빛다리 포스터](https://github.com/user-attachments/assets/2a789724-1e3c-4aec-aaa6-87aa64345ee1)
+![별빛다리 포스터](https://github.com/user-attachments/assets/dce2b00f-5cb4-4d12-962e-58c46ac21e75)
 
 ### 🎥 별빛다리 시연 영상
 
