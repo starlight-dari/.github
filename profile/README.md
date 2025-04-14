@@ -4,3 +4,6 @@
 
 [![시연 영상](https://img.youtube.com/vi/ikIy5DqPYYw/0.jpg)](https://www.youtube.com/watch?v=ikIy5DqPYYw&t=2s)
 
+### ✨ 별빛다리 발표 자료
+
+[별빛다리 발표.pdf](https://github.com/user-attachments/files/19740370/4.pdf)
